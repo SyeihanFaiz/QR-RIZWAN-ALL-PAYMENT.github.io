@@ -1,0 +1,1 @@
+# QR-RIZWAN-ALL-PAYMENT.github.io
